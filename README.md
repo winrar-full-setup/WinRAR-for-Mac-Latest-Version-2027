@@ -1,0 +1,1 @@
+# WinRAR-for-Mac-Latest-Version-2027
